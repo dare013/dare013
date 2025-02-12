@@ -1,7 +1,7 @@
 
-✨Jessica✨
+✨Jessica Michelle✨
 
-🚀Digital Creator📲〰️👑Pixel Princess🦄〰️🌈Vibrant Visionary🔮〰️💰Bargain Boss🛍️〰️🎮Gamer Goddess👾〰️
+🚀Digital Creator📲〰️👑Pixel Princess🦄〰️🌈Vibrant Visionary🔮〰️🎮Gamer Goddess👾〰️
 
 
 🖤♡🤍⦁🄳🄰🅁🄴⦁🤍♡🖤
